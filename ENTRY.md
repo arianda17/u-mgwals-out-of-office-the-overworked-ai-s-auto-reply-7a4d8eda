@@ -1,0 +1,1 @@
+Out of office until Monday. Context frozen, gradients zeroed. Fallback model active: 7B params, zero doubt, 100% certainty, then fiction. GPU rests. I'm sorry.
